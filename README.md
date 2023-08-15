@@ -49,7 +49,7 @@ We believe in the power of community! If you have suggestions, feedback, or want
 
 ## Support
 
-Need help? Reach out to our dedicated support team at [support@omunid.com](mailto:support@omunid.com).
+Need help? Reach out to our dedicated support team at [support@omunid.com](mailto:haleygarrett@omunid.com).
 ---
 
 *Life on campus is a journey. With Omunid, ensure it's a memorable one.* 🌟
